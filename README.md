@@ -2,7 +2,7 @@
 - 👀 I’m interested in web desin, brand idenity, and packaging design.
 - 🌱 I’m currently learning advanced web desinging by using wordpress and elementor.
 - 💞️ I’m looking to collaborate on innovative projects in web development.
-- 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/andrei-delabuena) or [Email](mailto:delabuenaandrei27@gmail.com)
+- 📫 How to reach me: [LinkedIn](www.linkedin.com/in/andrei-dela-buena-7304372a0) or [Email](mailto:delabuenaandrei27@gmail.com)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm good at drawing!
 
